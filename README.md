@@ -1,1 +1,1 @@
-# 202331299_Debora-Simbolon_Laprak2
+# 202331299_Debora-Simbolon_Histogram dan Operai Piksel
